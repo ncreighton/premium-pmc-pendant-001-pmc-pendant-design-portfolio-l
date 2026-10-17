@@ -1,0 +1,2 @@
+# premium-pmc-pendant-001-pmc-pendant-design-portfolio-l
+Tired of losing track of your PMC pendant designs, from initial clay sketches to final fired piece? The PMC Pendant Design Portfolio Log is your dedicated Notion workspace to organize every step of your metal clay journey.  This template solves the chaos of scattered notes and photos by centralizing all your pendant projects in one place. With stru
